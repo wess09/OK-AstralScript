@@ -1,2 +1,2 @@
 # 蓝色星原:旅谣
-[🔗链接](https://github.com/longer-sausage/OK-AzurPromilia))
+[🔗链接](https://github.com/longer-sausage/OK-AzurPromilia)
